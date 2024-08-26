@@ -1,0 +1,2 @@
+# epiktet
+Przepisywanie Epikteta
