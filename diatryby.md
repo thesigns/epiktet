@@ -79,3 +79,13 @@ Leon Joachimowicz
 Warszawa, w lutym 1960 r.
 
 ## DIATRYBY
+
+Arrian Lucjuszowi Gelliuszowi¹ śle pozdrowienie
+
+*Diatryb* Epikteta ani nie napisałem w taki sposób, w jaki ktoś² mógłby to uczynić, ani też sam nie rozpowszechniłem ich pomiędzy ludźmi; podobnie jak nie można w ogóle powiedzieć, że to ja jestem ich autorem. Co natomiast z ust jego słyszałem, to wszystko możliwie jak najdokładniej jego własnymi słowami starałem się napisać na własny użytek, w tym mianowicie celu, żeby na przyszłość zachować w sobie wpomnienia o jego sposobie jasnego myślenia i otwartości w mowie. Język i styl rozpraw, jak mnie się to wydało rzeczą właściwą i słuszną, jest taki, jakim posługuje się ktoś, kiedy za pierwszym odruchem wypowiada w rozmowie swe myśli wprost, bez ogródek, nie zaś kiedy pisze dla przyszłych czytelników. Sam jednak nie wiem, jak to się stało, że bez mojej wiedzy i wbrew mojej woli te moje notatki mimo wszystko dostały się do rąk ludzkich. Dla mnie wszakże niewielkie to będzie zmartwienie, jeżeli wydam się komuś nieudolnym sprawozdawcą, a już zgoła żadne dla Epikiteta, jeżeli ktoś będzie okazywał lekceważenie dla jego nauk, skoro on sam je głosząc nie miał, jak wiadomo, nic innego na celu, jak to tylko, żeby pobudzić w słuchaczach umysły do rzeczy najlepszych. Jeżeli zatem owe nauki zachowały do dzisiaj moc wywierania tych samych skutków, to moim zdaniem mają one te wszystkie zalety, jakie mieć winny nauki filozofów. Jeżeli jednak nie zachowały, niechże to sobie wiedzą czytelnicy, że ilekroć je głosił Epiktet, budziły one w słuchaczach takie uczucia, jakie on sam wzbudzić w nich pragnął. Jeżeli jednak jego nauki nie odniosą same przez się podobnych skutków, nie jest wyłączone, że albo temu wszystkiemu ja jestem winien, albo — trudno! Widać tak już być musi. Bądź zdrowy.
+
+### KSIĘGA PIERWSZA
+
+#### ROZDZIAŁ I
+
+*O tym, co leży, a co nie leży w naszej mocy*
